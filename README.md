@@ -1,2 +1,1 @@
-budgetnews
-==========
+Union Finance Minister Palaniappan Chidambaram surprised all those who had expected the Union budget to reflect the desperation of a government that has less than 15 months to change the current narrative of rising prices, financial scandals and terror attacks. Instead, on Thursday, Mr. Chidambaram chose to present a budget that had a mid-term aura, rather than an end of the road, pre-general elections feel about it.
